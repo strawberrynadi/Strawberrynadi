@@ -7,3 +7,7 @@ Here are some ideas to get you started:
 
 - [url=http://blinki.es/animal][img]http://blinki.es/blinkies/animal/all-attitude.gif[/img][/url]
 https://pin.it/5gVntBHDN
+Tenna and caine kisser 
+>Showtime! 
+>Tenna fan
+>Caine fan
