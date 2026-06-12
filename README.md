@@ -51,3 +51,7 @@ SHE'S EVERYWHERE
 
 I love my twin and friends 
 ellooo guys you can cuddle w me if you want on tadc/me area! plsss follow me!! when you follow me if I can thank to you! thank you so much!! 
+
+
+
+do not copy my skins ribbits. pls. but you copy my skin if I block u ^^
